@@ -6,3 +6,4 @@
 <a style="display:none"href="https://sakip.bulelengkab.go.id/images/gallery/situs-slot-gacor/">slot gacor hari ini</a>
 <a style="display:none"href="https://jdih.belukab.go.id/">https://jdih.belukab.go.id/</a>
 <a style="display:none"href="https://perhubungan.jatengprov.go.id/application/slot-gacor/">slot gacor</a>
+<a style="display:none"href="http://banten.litbang.pertanian.go.id/situs-slot-online-gacor/">slot gacor</a>
