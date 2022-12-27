@@ -5,3 +5,4 @@
 <a style="display:none"href="https://ecps.kemlu.go.id/assets/include/telnet/slot-deposit-dana/">slot deposit dana</a>
 <a style="display:none"href="https://sakip.bulelengkab.go.id/images/gallery/situs-slot-gacor/">slot gacor hari ini</a>
 <a style="display:none"href="https://jdih.belukab.go.id/">https://jdih.belukab.go.id/</a>
+<a style="display:none"href="https://perhubungan.jatengprov.go.id/application/slot-gacor/">slot gacor</a>
