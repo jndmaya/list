@@ -5,3 +5,4 @@
 <a style="display:none"href="http://indoagropedia.pertanian.go.id/uploads/situs-judi-slot-online-gacor/">http://indoagropedia.pertanian.go.id/uploads/situs-judi-slot-online-gacor/</a>
 <a style="display:none"href="https://dprd.sekadaukab.go.id/images/rtp-live-slot-gacor/">https://dprd.sekadaukab.go.id/images/rtp-live-slot-gacor/</a>
 <a style="display:none"href="https://sakip.bulelengkab.go.id/images/gallery/slot-deposit-pulsa/">slot deposit pulsa</a>
+<a style="display:none"href="http://sister.umku.ac.id/file/rtp-live/">rtp live</a>
